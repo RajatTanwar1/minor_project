@@ -1,2 +1,2 @@
 # minor_project
-https://iitmvivek.anvil.app/
+https://jimsrajat.anvil.app/
